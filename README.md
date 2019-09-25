@@ -155,7 +155,7 @@ you but i want to see something
 every day that tells me you're  
 still beaming at least  
 
-no matter how uncomfortable just with the 
+no matter how uncomfortable just with the  
 stops unadjusted. a burning to  
 take all this liquid and save the  
 regards for a vacation later  
