@@ -21,7 +21,7 @@ wily and prone
 splayed out and straddling  
 betwixt the preposterous  
 left of me pieces to  
-the right of way finding  
+the right of wayfinding  
 the basic freedom of mobility  
 
 hello panic,  
@@ -83,7 +83,7 @@ the dossier – gossamer
 on the fairest tournament  
 a robin on weathervane  
 a hooded figure behind  
-window pane  
+windowpane  
 a strand of unlucky  
 composure – nobody bothered  
 nobody bettered  
@@ -91,7 +91,7 @@ and all wagers final
 till funding dried up  
 like the wellspring  
 now summer, autumn's here  
-under half moon nearly  
+under half-moon nearly  
 doddering  
 teetering  
 teething toddler  
@@ -127,7 +127,7 @@ lot on your mind for a
 feeble philandering philanthropist  
 processing...  
 chunks of data at a time  
-turn around at the drop off  
+turn around at the drop-off  
 
 point relax these happy notions again  
 no retreat these open merry ways  
